@@ -1,0 +1,1 @@
+# Esc-ners-i-C-meres-de-Captura-d-Imatge
